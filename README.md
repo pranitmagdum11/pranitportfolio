@@ -1,1 +1,1 @@
-# Avnish_portfolio.github.io
+# Pranit_portfolio.github.io
